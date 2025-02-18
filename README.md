@@ -1,1 +1,1 @@
-# Miniprojek-Malta
+# Miniprojekt-Malta
